@@ -1,2 +1,3 @@
-# fitst-repository
-second add
+# koskingkos's stoty
+
+hi~
