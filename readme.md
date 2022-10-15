@@ -1,3 +1,3 @@
-# koskingkos's stoty
+# koskingkos's story
 
 hi~
