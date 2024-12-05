@@ -2,4 +2,4 @@
 
 hi~
 
-# test 진행
+test 입니다
