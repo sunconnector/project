@@ -1,4 +1,4 @@
-# koskingkos's story
+# SunConnector's story
 
 hi~
 
